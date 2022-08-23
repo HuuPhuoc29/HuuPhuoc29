@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Huu Phuoc
+- 👋 Hi, I’m Huu Phuoc (H-PH)
 - 💞️ I’m an information technology student
 - 🌱 I’m currently learning at the The University of Danang - University of Science and Technology
 - 👀 I’m interested in Basketball
